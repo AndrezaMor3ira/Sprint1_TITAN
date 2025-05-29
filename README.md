@@ -1,1 +1,1 @@
-Entrega da Sprint1 TITAn
+Entrega da Sprint1 TITAN
